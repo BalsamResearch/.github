@@ -1,1 +1,1 @@
-Copyright © 2025  Balsam Research, LLC All rights reserved.
+All images Copyright © 2025 Balsam Research, LLC All rights reserved.
